@@ -26,4 +26,4 @@ I rushed both of these as they were just meant to be examples.
 ## **Contact:**
 Feel free to contact me if you have any problems.
 if you want something added feel free to ask by joining by discord server.\
-Servers ded, dm me instead `moom825#9999`.
+https://discord.gg/cKwkkC2U4c, dm me instead `moom825#9999`.
